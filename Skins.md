@@ -1,4 +1,5 @@
 # Nightlywind Osu Skins Gathering
+[old skin collection](https://pastebin.com/xEuwMRJw)
 
 
 # [azer8dawn blue trail](https://nghtly.s-ul.eu/YLmlRIXE) 
