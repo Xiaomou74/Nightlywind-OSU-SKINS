@@ -1,6 +1,8 @@
 # Nightlywind Osu Skins Gathering
 [old skin collection](https://pastebin.com/xEuwMRJw)
 
+# [arisita varv](https://nghtly.s-ul.eu/JGQM1zTe) 
+![](https://i.imgur.com/sDYiC39.jpeg)
 
 # [azer8dawn blue trail](https://nghtly.s-ul.eu/YLmlRIXE) 
 ![](https://i.imgur.com/vZ0QHeR.jpeg)
