@@ -2,7 +2,7 @@
 [old skin collection](https://pastebin.com/xEuwMRJw)
 
 # [enrixilver](https://nghtly.s-ul.eu/lpDI50Ko) 
-![](https://i.imgur.com/VqiAPEO.jpeg)
+![](https://i.imgur.com/RgQTlBY.jpeg)
 
 # [arisita varv](https://nghtly.s-ul.eu/JGQM1zTe) 
 ![](https://i.imgur.com/sDYiC39.jpeg)
